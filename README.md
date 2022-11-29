@@ -1,1 +1,1 @@
-# SAOD_2072_Tsiklov_Alexandr-
+SAOD 2072 Tsiklov Alexandr
